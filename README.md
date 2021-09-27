@@ -1,6 +1,6 @@
 ### Well well well... Who do we have here? 👀
 
-Are you lost? Are you bored? Or perhaps you're procrastinating?
+Are you lost? Are you bored? Or perhaps you're here to procrastinate?
 
 - 📖 Read about why vinegar is the bane of my existence [here](https://medium.com/the-haven/my-hate-hate-relationship-with-vinegar-b627593cf96).
 - 🎬 Watch the Marvel films in chronological order. Use this [guide](https://amseeyou.netlify.app/)!
